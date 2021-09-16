@@ -1,1 +1,1 @@
-full-time student, freelance website / software developer
+full-time student // website developer
